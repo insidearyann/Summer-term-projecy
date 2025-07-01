@@ -1,1 +1,1 @@
-# Summer-term-projecy
+# Summer-term-project
